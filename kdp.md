@@ -2,8 +2,6 @@
 
 # Introduction
 
-Introduction:
-
 Effective communication is essential for success in any workplace. However, communication is not just about speaking - it's also about listening. Listening is a critical skill that is often overlooked, but can greatly impact the quality of our interactions with others.
 
 In this book, we will explore the art of listening and how it can help us improve our communication, connection, and understanding at work. We will delve into the various barriers to effective listening, such as distractions, biases, and lack of interest, and provide strategies for overcoming them.
