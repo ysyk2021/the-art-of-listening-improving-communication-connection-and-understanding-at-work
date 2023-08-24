@@ -1,5 +1,3 @@
-Chapter 4: Listening to Build Relationships and Connection
-==========================================================
 
 Effective listening is essential for building relationships and connection in the workplace. In this chapter, we will explore strategies for building relationships and connection through listening, fostering a sense of community and belonging among colleagues, and encouraging open communication and constructive feedback.
 

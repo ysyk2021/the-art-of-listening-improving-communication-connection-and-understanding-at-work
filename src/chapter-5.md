@@ -1,5 +1,3 @@
-Chapter 5: Listening to Manage Conflict and Difficult Situations
-================================================================
 
 Listening is a critical skill in managing conflict and difficult situations in the workplace. In this chapter, we will explore strategies for managing conflict and difficult situations through listening, recognizing diverse perspectives and experiences, and using active listening and empathy to de-escalate difficult situations.
 

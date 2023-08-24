@@ -1,4 +1,3 @@
-# Encouraging Open Communication and Constructive Feedback
 
 In this chapter, we will explore the importance of encouraging open communication and constructive feedback in the workplace. We will discuss why effective communication is essential for fostering a positive work environment and provide strategies for promoting transparent communication and feedback exchange.
 

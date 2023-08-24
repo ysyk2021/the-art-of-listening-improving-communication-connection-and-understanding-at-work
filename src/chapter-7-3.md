@@ -1,4 +1,3 @@
-# Using Technology and Data to Track and Enhance Listening Efforts
 
 In this chapter, we will explore how technology and data can be harnessed to track and enhance listening efforts in the workplace. We will discuss the benefits of leveraging technology, explore different tools and platforms available, and discuss strategies for leveraging data to improve listening skills.
 

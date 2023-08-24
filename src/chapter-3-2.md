@@ -1,4 +1,3 @@
-# Addressing Biases and Assumptions
 
 In this chapter, we will explore the topic of addressing biases and assumptions in our interactions. By becoming aware of our biases and challenging our assumptions, we can foster a more inclusive and equitable workplace environment.
 

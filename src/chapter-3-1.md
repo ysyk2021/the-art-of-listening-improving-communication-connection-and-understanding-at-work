@@ -1,5 +1,3 @@
-Identifying Common Barriers to Effective Listening
-===============================================================================================
 
 Effective communication is built upon the foundation of active listening. However, there are several barriers that can hinder our ability to listen effectively. In this chapter, we will explore and identify some common barriers to effective listening and discuss strategies to overcome them.
 

@@ -1,4 +1,4 @@
-# Introduction
+
 
 Effective communication is essential for success in any workplace. However, communication is not just about speaking - it's also about listening. Listening is a critical skill that is often overlooked, but can greatly impact the quality of our interactions with others.
 

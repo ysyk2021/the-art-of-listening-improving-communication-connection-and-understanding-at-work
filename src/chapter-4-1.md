@@ -1,4 +1,3 @@
-# Developing Strategies for Building Relationships and Connection through Listening
 
 In this chapter of "The Art of Listening: Improving Communication, Connection, and Understanding at Work," we will explore various strategies for building relationships and fostering connection through the power of listening. By honing our listening skills and employing these strategies, we can create meaningful connections in the workplace and enhance collaboration and understanding.
 

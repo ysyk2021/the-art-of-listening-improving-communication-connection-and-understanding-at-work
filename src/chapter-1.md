@@ -1,5 +1,3 @@
-Chapter 1: Introduction to the Art of Listening
-===============================================
 
 Effective listening is a critical skill for communication, connection, and understanding in the workplace. In this chapter, we will define listening and its importance in effective communication, explore historical perspectives on listening theory and practice, and discuss the challenges and opportunities of effective listening in the workplace.
 

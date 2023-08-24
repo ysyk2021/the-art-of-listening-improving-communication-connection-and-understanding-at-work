@@ -1,5 +1,3 @@
-Developing Strategies for Managing Conflict and Difficult Situations through Listening
-========================================================================================================================================================
 
 Effective listening is a critical skill for managing conflict and difficult situations in the workplace. In this chapter, we will explore strategies for using listening to manage conflict and difficult situations.
 

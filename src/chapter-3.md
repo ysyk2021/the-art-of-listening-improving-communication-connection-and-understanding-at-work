@@ -1,5 +1,3 @@
-Chapter 3: Overcoming Barriers to Listening
-===========================================
 
 In this chapter, we will explore various barriers that hinder effective listening and discuss strategies to overcome them. By identifying these common obstacles, addressing biases and assumptions, and building awareness and empathy, we can enhance our communication skills and foster better connections with others.
 

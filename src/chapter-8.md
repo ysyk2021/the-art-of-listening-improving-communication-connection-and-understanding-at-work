@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Listening Skills and Strategies
-===================================================================
 
 Measuring and evaluating listening skills and strategies is essential for personal and organizational growth. In this chapter, we will explore the importance of measuring and evaluating listening skills and strategies, using data and metrics to track progress and success, and adjusting listening strategies as needed.
 

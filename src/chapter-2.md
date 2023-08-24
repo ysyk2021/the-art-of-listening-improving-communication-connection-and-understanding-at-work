@@ -1,5 +1,3 @@
-Chapter 2: Active Listening Skills for Better Communication
-===========================================================
 
 Developing Active Listening Skills for Better Communication
 -----------------------------------------------------------

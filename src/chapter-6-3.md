@@ -1,4 +1,3 @@
-# Using Active Listening and Constructive Feedback to Motivate and Inspire
 
 In this chapter, we will explore how active listening and constructive feedback can be powerful tools for motivating and inspiring individuals in the workplace. We will discuss the principles of active listening, the benefits of constructive feedback, and how leaders can effectively use these techniques to empower their teams and drive performance.
 

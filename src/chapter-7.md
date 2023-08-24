@@ -1,5 +1,3 @@
-Chapter 7: Leveraging Technology and Tools for Listening
-========================================================
 
 In this chapter, we will explore how technology and various tools can be utilized to enhance listening skills. We will discuss the different technologies available, selecting the most appropriate tools for your listening goals, and utilizing technology and data to track and improve listening efforts.
 

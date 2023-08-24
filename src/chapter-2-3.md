@@ -1,5 +1,3 @@
-Asking Thoughtful Questions and Offering Reflective Responses
-==========================================================================================================================
 
 In this chapter, we will explore the crucial role of active listening in improving communication, connection, and understanding at work. Active listening is a valuable skill that allows us to fully engage with others, demonstrate empathy, and build stronger relationships. One important aspect of active listening involves asking thoughtful questions and offering reflective responses.
 

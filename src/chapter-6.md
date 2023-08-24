@@ -1,5 +1,3 @@
-Chapter 6: Using Listening to Enhance Leadership and Management Skills
-======================================================================
 
 Listening is a critical skill for effective leadership and management. In this chapter, we will explore strategies for developing effective leadership and management skills through listening, leading with authenticity, transparency, and empathy, and using active listening and constructive feedback to motivate and inspire.
 
